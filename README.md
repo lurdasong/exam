@@ -1,0 +1,1 @@
+## Preparations for IT exam
